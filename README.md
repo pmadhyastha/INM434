@@ -2,7 +2,7 @@
 
 
 #### INM434/INM3045 @ City, University of London 
-2022-2023 (Spring) 
+2022-2026
 
 
 
